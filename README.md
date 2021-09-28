@@ -7,7 +7,7 @@
 
 ## Addidas Prime X
 
-![Image]
+![Image](adidasprimex.jpg)
 
 ## Nike Vaporfly Next%
 
