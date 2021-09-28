@@ -2,7 +2,7 @@
 
 
 ## Asics Metaspeed Sky
-![Image]
+![Image](asics-metaspeed-sky-feature.jpg)
 
 ## Addidas Prime X
 
